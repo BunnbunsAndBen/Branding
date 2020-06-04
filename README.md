@@ -1,2 +1,2 @@
-# branding
-The branding of Bunnbuns &amp; Ben LLC
+# Branding
+The branding for Bunnbuns &amp; Ben LLC
